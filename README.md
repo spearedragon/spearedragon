@@ -1,5 +1,5 @@
 <p align="center">
-<img width="600" height="500" alt="image" src="https://github.com/user-attachments/assets/147836d1-e61a-450f-82a5-ebbfb71822b0" />
+<img width="400" height="305" alt="image" src="https://github.com/user-attachments/assets/672e9336-7987-4b1a-acfe-a064c44faff7" />
 
  <p align="center">
-<p align="center">  <a href="https://pronouns.cc/@fawnsage" target="_blank" rel="noopener">𝒫𝓇𝓃𝓈𝓅𝒶𝑔𝑒</a>‎ ᶠᶸᶜᵏᵧₒᵤ! <a href="https://fawnsage.atabook.org" target="_blank" rel="noopener">𝒶𝓉𝒶𝒷𝑜𝑜𝓀</a>
+<p align="center">  <a href="https://pronouns.cc/@consumingdarkness" target="_blank" rel="noopener">𝒫𝓇𝓃𝓈𝓅𝒶𝑔𝑒</a>‎ ᶠᶸᶜᵏᵧₒᵤ! <a href="https://coquettevegeta.atabook.org" target="_blank" rel="noopener">𝒶𝓉𝒶𝒷𝑜𝑜𝓀</a>
